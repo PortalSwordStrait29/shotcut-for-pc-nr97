@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Shotcut for PC | Shotcut for Windows extension with Shotcut for PC | Shotcut for Windows automatic Extension: proxy-editing & color-grading. Featuring
 
 
 
